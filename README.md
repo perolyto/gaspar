@@ -1,4 +1,4 @@
-# gaspar
+# GASPAR GOITIA
 curriculum vitae
 
 FORMACIÓN COMPLEMENTARIA
